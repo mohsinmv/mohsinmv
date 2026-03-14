@@ -40,7 +40,7 @@ I'm **Mohammad Mohsin** — a Dubai-based entrepreneur, marketer, and developer 
 - Meta Ads, motion graphics, brand identity
 - Remotion-based cinematic brand videos
 - Growth Operating System (SOP-driven)
-- 🌐 Dubai | [growar.co](https://growar.agency)
+- 🌐 Dubai | [growar.agency](https://growar.agency)
 
 ---
 
